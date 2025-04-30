@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MircaMircas
-- 👀 I’m interested in... idk
+- 👀 I’m interested in... idk (check my status)
 - 🌱 I’m currently learning... 🤫 
 - 💞️ I’m looking to collaborate on... idk
 - 📫 How to reach me... you cant!
