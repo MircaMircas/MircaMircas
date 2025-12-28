@@ -2,8 +2,8 @@
 - 👀 I’m interested in... idk (check my status)
 - 🌱 I’m currently learning... 🤫 
 - 💞️ I’m looking to collaborate on... idk
-- 📫 How to reach me... you cant!
-- 😄 Pronouns: I/Prefer/Not/To/Say
+- 📫 How to reach me... you can't!
+- 😄 Pronouns: I/prefer/not/to/say
 - ⚡ Fun fact: AAAAAAAAAAAAAAAAAA
 
 <!---
